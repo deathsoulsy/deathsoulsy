@@ -7,6 +7,6 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ i have a beautiful [wife](https://github.com/C4NIBAYL1SM3)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/7b763e0c-e642-47b0-b452-6f5fec56cb78" />‎ ‎ ‎ ‎ ‎ ‎────────
 ‎ ‎ ‎ ‎ ‎ 26  .  10‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ . BASIC DNI
 
-free int as long as my name does not containt some **DNI** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎<img width="53" height="18" alt="Image" src="https://github.com/user-attachments/assets/1aa3dac1-75be-485b-90b4-ec36a932ba0f" /> ‎  ‎ ‎*HE / HIM* ‎ ‎ ‎ ‎ ‎ 
+free int as long as my name does not containt some **DNI** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/c222897a-2aa8-4212-9f84-6f9ccd729b57" /> ‎  ‎ ‎*HE / HIM* ‎ ‎ ‎ ‎ ‎ 
 
 <img width="736" height="331" alt="Image" src="https://github.com/user-attachments/assets/f6987c26-526d-49cd-bee2-0b9abbbe71e1" />
