@@ -1,11 +1,12 @@
 <img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/25ce495a-9d1a-42f0-ba5a-13a2e1e5e6bb" />
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![image_alt](https://github.com/deathsoulsy/deathsoulsy/blob/c008bcfeaccc2d7f373567bae42f69d0c67161a9/tumblr_53432c47df95ffb03be326b9126a2eaa_7f584ea8_75.gif) ‎ ‎ ‎ ‎ ‎ *FAJRIL / REI / KAI* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎—  STRAIGHT ALLY ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ **‎&& [INFP](https://www.16personalities.com/infp-personality)** ‎ ‎ ‎ ‎ ‎
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/cd8846d1-b699-4f52-8528-ee28bd4dae63" />
+ ‎ ‎ ‎ ‎ ‎ *FAJRIL / REI / KAI* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎—  STRAIGHT ALLY ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ **‎&& [INFP](https://www.16personalities.com/infp-personality)** ‎ ‎ ‎ ‎ ‎
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ i have a beautiful [wife](https://github.com/C4NIBAYL1SM3)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![image_alt](https://github.com/deathsoulsy/deathsoulsy/blob/c008bcfeaccc2d7f373567bae42f69d0c67161a9/lyuldm.gif) ‎ ‎ ‎ ‎ ‎ ‎────────
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ i have a beautiful [wife](https://github.com/C4NIBAYL1SM3)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/7b763e0c-e642-47b0-b452-6f5fec56cb78" />‎ ‎ ‎ ‎ ‎ ‎────────
 ‎ ‎ ‎ ‎ ‎ 26  .  10‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ . BASIC DNI
 
-free int as long as my name does not containt some **DNI** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎![image_alt](https://github.com/deathsoulsy/deathsoulsy/blob/c008bcfeaccc2d7f373567bae42f69d0c67161a9/tumblr_inline_msbvj6zNnM1rkldve540.gif) ‎  ‎ ‎*HE / HIM* ‎ ‎ ‎ ‎ ‎ 
+free int as long as my name does not containt some **DNI** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎<img width="53" height="18" alt="Image" src="https://github.com/user-attachments/assets/1aa3dac1-75be-485b-90b4-ec36a932ba0f" /> ‎  ‎ ‎*HE / HIM* ‎ ‎ ‎ ‎ ‎ 
 
 <img width="736" height="331" alt="Image" src="https://github.com/user-attachments/assets/f6987c26-526d-49cd-bee2-0b9abbbe71e1" />
