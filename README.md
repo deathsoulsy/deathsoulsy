@@ -1,4 +1,4 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![image_alt](https://github.com/deathsoulsy/deathsoulsy/blob/c008bcfeaccc2d7f373567bae42f69d0c67161a9/From%20Main%20Klickpin%20CF-%20tumblrcom%20-%206iKC9sQGe.gif) 
+<img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/25ce495a-9d1a-42f0-ba5a-13a2e1e5e6bb" />
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎![image_alt](https://github.com/deathsoulsy/deathsoulsy/blob/c008bcfeaccc2d7f373567bae42f69d0c67161a9/tumblr_53432c47df95ffb03be326b9126a2eaa_7f584ea8_75.gif) ‎ ‎ ‎ ‎ ‎ *FAJRIL / REI / KAI* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎—  STRAIGHT ALLY ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ **‎&& [INFP](https://www.16personalities.com/infp-personality)** ‎ ‎ ‎ ‎ ‎
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
@@ -7,3 +7,5 @@
 ‎ ‎ ‎ ‎ ‎ 26  .  10‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ . BASIC DNI
 
 free int as long as my name does not containt some **DNI** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎![image_alt](https://github.com/deathsoulsy/deathsoulsy/blob/c008bcfeaccc2d7f373567bae42f69d0c67161a9/tumblr_inline_msbvj6zNnM1rkldve540.gif) ‎  ‎ ‎*HE / HIM* ‎ ‎ ‎ ‎ ‎ 
+
+<img width="736" height="331" alt="Image" src="https://github.com/user-attachments/assets/f6987c26-526d-49cd-bee2-0b9abbbe71e1" />
